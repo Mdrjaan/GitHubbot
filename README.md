@@ -10,3 +10,6 @@ ay changa kam ay dono passon comment kro
 check ke mitran da swag billo 
 lag gya visa badal gayan gallan 
 milly ho tum ham ko bare naseeebon se 
+Soneya battry too hot addi sheti
+maenu ni pata green kro menu 
+mehrbani sir
