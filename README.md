@@ -13,3 +13,6 @@ milly ho tum ham ko bare naseeebon se
 Soneya battry too hot addi sheti
 maenu ni pata green kro menu 
 mehrbani sir
+Yuaar ak late aya wna thora egnore kro 
+tene nal dil la ke mar gi me mani a
+tu te me chaliyae door kiye jithe paniyan de rang ne neele
