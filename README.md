@@ -17,3 +17,4 @@ Yuaar ak late aya wna thora egnore kro
 tene nal dil la ke mar gi me mani a
 tu te me chaliyae door kiye jithe paniyan de rang ne neele
 lag gya visa badal gai an galan tenu hum ki kena ay
+yaar thori g hor hari ho haye kite
