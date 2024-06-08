@@ -18,3 +18,10 @@ tene nal dil la ke mar gi me mani a
 tu te me chaliyae door kiye jithe paniyan de rang ne neele
 lag gya visa badal gai an galan tenu hum ki kena ay
 yaar thori g hor hari ho haye kite
+kende ne ager 6 comment hon te full green ho janda ay
+agon wekho ki honda ay
+chalo koi gal ni 
+zindgi ki talash me ham 
+aa ge moot ke kitne qreeb aa gaye
+akhri lite e wekh de aan kitni green hoti he 
+chal save ke mint mar
