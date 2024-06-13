@@ -28,3 +28,4 @@ chal save ke mint mar
 Yaar hun onda ne 20 score mang leya ay ki kran me 
 kkkkllll
 Tume dil lagi bhool jani pare gi 
+yaar hun ki kran main
