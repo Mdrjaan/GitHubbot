@@ -29,3 +29,5 @@ Yaar hun onda ne 20 score mang leya ay ki kran me
 kkkkllll
 Tume dil lagi bhool jani pare gi 
 yaar hun ki kran main
+Reload the onchain network 
+yaar kite ho jawe na fer e 
