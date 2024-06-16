@@ -32,3 +32,5 @@ yaar hun ki kran main
 Reload the onchain network 
 yaar kite ho jawe na fer e 
 yaar pata ni ku in chut janda ay
+aj kisi ki usb le kr aya tha 
+gum ho gaye
