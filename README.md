@@ -34,3 +34,4 @@ yaar kite ho jawe na fer e
 yaar pata ni ku in chut janda ay
 aj kisi ki usb le kr aya tha 
 gum ho gaye
+Happy eid mubarak to all green tick
