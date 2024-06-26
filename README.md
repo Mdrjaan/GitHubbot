@@ -42,3 +42,4 @@ aj yaar koi hisaab jeya ni lag reya ki karan me
 menu pata bs lare a tu weya ni krona mere nal
 suna kidan da laga gana tenu
 yaar kal wali mere save ni howi pata ni kaya baat thi
+Yaar aj da din na miss howe kite 
