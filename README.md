@@ -44,3 +44,5 @@ suna kidan da laga gana tenu
 yaar kal wali mere save ni howi pata ni kaya baat thi
 Yaar aj da din na miss howe kite 
 aj yaar kam kiya hi ni mene pata ni ku dil hi ni krta
+lo g hun kam v kharm hon wala ay
+hun banni ay gal 
