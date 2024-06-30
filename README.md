@@ -47,3 +47,4 @@ aj yaar kam kiya hi ni mene pata ni ku dil hi ni krta
 lo g hun kam v kharm hon wala ay
 hun banni ay gal 
 panga te github ne v paya c but login kr ke thaik ho gya
+lo g ak to ho claim ho gaya he
