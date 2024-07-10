@@ -51,3 +51,4 @@ lo g ak to ho claim ho gaya he
 aj 3 din bad aya hon
 allaha alllah 
 ab mulaka ki umeed b doka he
+kya yaar
